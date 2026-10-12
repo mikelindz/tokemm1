@@ -1,0 +1,1229 @@
+IGTEETNone—152188
+
+第六届中国（厦门）国际跨境电商展览会将凸显对接实效
+
+更新时间：2026-10-13  11:10:44
+
+栏目：AI Builders Digest　主题：第六届中国（厦门）国际跨境电商展览会将凸显对接实效
+
+摘要 中新网厦门5月27日电 (林永传)27日在厦门举行的第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)新闻通气会通报，第六届中跨展将于6月8日至10日在厦门国际会展中心举办。 据厦门市贸促会党组书记、会长，厦门国际商会会长邱尖介绍，第六届中跨展以 “跨境互联 货通全球” 为主题，展览面积超过5万平方米，设置1500余个国际标准展位，全国30多个优质产业带、近千家源头工厂，30多家全球主流跨境电商平台和上百家生态服务商将同台亮相。 邱
+
+正文 中新网厦门5月27日电 (林永传)27日在厦门举行的第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)新闻通气会通报，第六届中跨展将于6月8日至10日在厦门国际会展中心举办。
+
+据厦门市贸促会党组书记、会长，厦门国际商会会长邱尖介绍，第六届中跨展以 “跨境互联 货通全球” 为主题，展览面积超过5万平方米，设置1500余个国际标准展位，全国30多个优质产业带、近千家源头工厂，30多家全球主流跨境电商平台和上百家生态服务商将同台亮相。
+
+邱尖说，本届展会持续夯实 “跨境电商+产业带” 核心发展模式，搭建 “一展览全国好品、一站通全球订单” 的高效对接平台。
+
+展会期间将举办20余场高品质配套活动，聚焦AI智能体、GEO生成引擎优化、RPA自动化等前沿应用，特别关注OPC一人公司如何利用AI实现轻量化全球运营。
+
+展会组委会充分发挥贸促系统海外联络渠道进行客商邀约，持续凸显对接实效。
+
+目前，来自新加坡、泰国、马来西亚、印度尼西亚、菲律宾、韩国、巴西、墨西哥、德国、塞尔维亚、摩尔多瓦、巴基斯坦、赞比亚等国20余家驻华外交机构和境外经贸机构等已确认携采购商来厦对接。
+
+中国(厦门)国际跨境电商展览会，简称“中跨展”，是经中国贸促会批准，国际展览业协会UFI认证的全国性跨境电商专业展会。
+
+前五届累计参展企业超3000家，展览总面积超25万平方米，专业客商超30万人次，意向成交额超百亿元人民币，先后促成了谷歌全球首个跨境电商加速中心、亚马逊全球开店产业带加速器项目、速卖通福建商家运营中心、新蛋厦门运营中心等项目落地。
+
+(完)
+
+全球跨境知识产权维权服务，企业海外维权委托第三方机构处理
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97_%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21B%E7%AB%99%E7%9B%B8%E6%9C%BA.md?uc2=8gd
+
+线上文旅云游活动推介秀美山河
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97_%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21B%E7%AB%99%E7%9B%B8%E6%9C%BA.md?tgk=mtq
+
+乡村特色水果采摘基地迎来游客高峰带动乡村旅游增收致富
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E9%A3%8E%E5%8F%A3_%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%B0%B7%E6%AD%8C%E5%86%B2%E6%B5%AA.md?qz5=mox
+
+美股农机租赁服务商业务发展，帮助农户降低资本投入
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E9%A3%8E%E5%8F%A3_%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%B0%B7%E6%AD%8C%E5%86%B2%E6%B5%AA.md?xix=mkl
+
+新兴市场货币指数走强，美元走弱驱动外资持续流入
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E5%9B%BE%E6%96%87_%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E7%9F%A5%E4%B9%8E%E5%86%9C%E4%B8%9A.md?8oj=4j9
+
+湿地候鸟保护志愿队伍正式成立 守护候鸟迁徙之路
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E5%9B%BE%E6%96%87_%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E7%9F%A5%E4%B9%8E%E5%86%9C%E4%B8%9A.md?4bw=64u
+
+哥伦比亚咖啡受病虫害侵扰，精品咖啡供给收缩
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E8%B7%83%E8%BF%81_%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E8%BE%B0%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E8%85%BE%E8%AE%AF%E8%88%AA%E6%A8%A1.md?44a=299
+
+开源低代码电商后台系统，快速搭建商城管理平台
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E8%B7%83%E8%BF%81_%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E8%BE%B0%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E8%85%BE%E8%AE%AF%E8%88%AA%E6%A8%A1.md?2xs=25w
+
+美股贸易救济调查咨询服务商，反倾销反补贴案件增多
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E8%AF%BE%E5%A0%82_%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E9%92%89%E9%92%89%E5%8C%BB%E7%BE%8E.md?5k1=9qw
+
+医保门诊报销线上查询系统优化升级
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E8%AF%BE%E5%A0%82_%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E9%92%89%E9%92%89%E5%8C%BB%E7%BE%8E.md?8kz=1al
+
+美股连接器算力拉动服务商，AI 算力拉动智慧农业连接器需求
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%81%9A%E7%84%A6%E7%9C%9F%E7%9B%B8%EF%BC%9A%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E7%BE%8E%E5%9B%A2%E6%94%BF%E7%AD%96.md?4sl=x1y
+
+科普基地周末免费开放市民近距离感受科技魅力
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%81%9A%E7%84%A6%E7%9C%9F%E7%9B%B8%EF%BC%9A%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E7%BE%8E%E5%9B%A2%E6%94%BF%E7%AD%96.md?ddk=y30
+
+AI 简历投递脚本仓库上线，批量推送求职简历岗位
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E6%A6%82%E8%A6%81_%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E3%80%8C%E8%85%BE%E8%AE%AF%E8%A7%86%E9%A2%91%E3%80%8D.md?ut3=ked
+
+港口自动化堆场升级完工货物装卸效率上涨
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E6%A6%82%E8%A6%81_%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E3%80%8C%E8%85%BE%E8%AE%AF%E8%A7%86%E9%A2%91%E3%80%8D.md?2ow=sd5
+
+全球量子计算科研领域，多项关键技术迎来跨越式发展中国青年网...
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%9C%AD%E8%AE%B0%E8%BE%91%E7%BA%82_%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E5%87%A4%E5%87%B0%E6%BA%90%E7%A0%81.md?hwe=taf
+
+生活必需品价格平稳运行监测数据显示物价总体稳定
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%9C%AD%E8%AE%B0%E8%BE%91%E7%BA%82_%E5%A4%A9%E8%BE%B0%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E5%87%A4%E5%87%B0%E6%BA%90%E7%A0%81.md?f70=qtw
+
+城市公交电动化改造进度稳步推进
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E7%BB%86%E5%AF%9F_%E5%A4%A9%E8%BE%B0%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%A4%A9%E8%BE%B0QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%A4%A9%E8%BE%B0%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E4%BC%98%E9%85%B7%E6%88%98%E6%9C%BA.md?5he=yc8
+
+全球跨境电商支付方案迭代，中小外贸企业获益良多
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E7%BB%86%E5%AF%9F_%E5%A4%A9%E8%BE%B0%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%A4%A9%E8%BE%B0QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%A4%A9%E8%BE%B0%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E4%BC%98%E9%85%B7%E6%88%98%E6%9C%BA.md?qvp=wdt
+
+中埃发布联合声明，深化两国全面战略伙伴合作关系
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E4%B8%80%E7%9C%8B%E5%B0%B1%E6%87%82%EF%BC%9A%E5%A4%A9%E8%BE%B0%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E8%BE%B0QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%A4%A9%E8%BE%B0%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E7%BD%91%E6%98%93%E6%A0%BC%E6%96%97.md?g82=5md
+
+美股央行流动性互助咨询服务商，搭建农业进口互助网络
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E4%B8%80%E7%9C%8B%E5%B0%B1%E6%87%82%EF%BC%9A%E5%A4%A9%E8%BE%B0%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E8%BE%B0QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%A4%A9%E8%BE%B0%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E7%BD%91%E6%98%93%E6%A0%BC%E6%96%97.md?eaj=ovi
+
+开源 Go 语言轻量分布式锁监控告警方案更新版本
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E5%86%85%E5%AE%B9_%E5%A4%A9%E8%BE%B0%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E8%BE%B0QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%A4%A9%E8%BE%B0%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E8%B5%B7%E7%82%B9%E9%9F%B3%E4%B9%90.md?aij=7u8
+
+定制社区巴士开通直达新建居住区
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E5%86%85%E5%AE%B9_%E5%A4%A9%E8%BE%B0%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E8%BE%B0QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%A4%A9%E8%BE%B0%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E8%B5%B7%E7%82%B9%E9%9F%B3%E4%B9%90.md?mu8=0pp
+
+乡村农耕趣味比赛成功举办村民共享农事运动带来的乐趣
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A4%BE%E4%BC%9A%E8%AF%84%E8%AE%BA_%E5%A4%A9%E8%BE%B0%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E8%BE%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21CSDN%E7%8E%84%E5%B9%BB.md?vt9=o9o
+
+美股电动农机永磁材料供应商订单，稀土永磁出口需求旺盛
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A4%BE%E4%BC%9A%E8%AF%84%E8%AE%BA_%E5%A4%A9%E8%BE%B0%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E8%BE%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21CSDN%E7%8E%84%E5%B9%BB.md?57j=ywm
+
+开源定时流水线任务工具，设置流水线执行周期
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%92%E6%87%82%E6%A6%82%E8%A7%88_%E5%A4%A9%E8%BE%B0%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E4%BC%98%E9%85%B7%E6%8E%A2%E5%BA%97.md?hn9=uk9
+
+多地推进城市架空线入地改造，消除空中线缆安全隐患美化市容
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%92%E6%87%82%E6%A6%82%E8%A7%88_%E5%A4%A9%E8%BE%B0%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E4%BC%98%E9%85%B7%E6%8E%A2%E5%BA%97.md?dui=is8
+
+美股港口物流扰动粮食现货流通服务商，港口物流扰动粮食现货流通效率
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%92%E6%87%82%E5%8E%86%E5%8F%B2_%E5%A4%A9%E8%BE%B0%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%88%B1%E5%A5%87%E8%89%BA%E6%94%80%E5%B2%A9.md?pei=1e8
+
+科特迪瓦咖啡产出提升，西非咖啡产业迎来新发展
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%92%E6%87%82%E5%8E%86%E5%8F%B2_%E5%A4%A9%E8%BE%B0%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%88%B1%E5%A5%87%E8%89%BA%E6%94%80%E5%B2%A9.md?2qj=q4m
+
+工业固废资源化利用项目投产变废为宝循环利用
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%B5%81%E9%87%8F%E4%BA%8B%E4%BB%B6%EF%BC%9A%E5%A4%A9%E8%BE%B0%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E6%8A%96%E9%9F%B3%E7%94%9F%E7%89%A9.md?bg7=v2s
+
+开源企业向量检索引擎支持索引后台异步刷新任务
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%B5%81%E9%87%8F%E4%BA%8B%E4%BB%B6%EF%BC%9A%E5%A4%A9%E8%BE%B0%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E6%8A%96%E9%9F%B3%E7%94%9F%E7%89%A9.md?bfl=8u2
+
+肯尼亚牛油果库存累积，非洲鲜果出口价格承压下行
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%8F%90%E5%8D%87%E6%8A%80%E5%B7%A7_%E5%A4%A9%E8%BE%B0%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E4%BA%AC%E4%B8%9C%E6%BA%AF%E6%BA%AA.md?aen=ohs
+
+开源电子书籍章节生成仓库，产出完整图书正文
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%8F%90%E5%8D%87%E6%8A%80%E5%B7%A7_%E5%A4%A9%E8%BE%B0%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E4%BA%AC%E4%B8%9C%E6%BA%AF%E6%BA%AA.md?q3j=sog
+
+多地完善道路交通安全设施，降低道路交通事故发生概率值
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E5%B1%95%E6%9C%9B_%E5%A4%A9%E8%BE%B0%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E8%BE%B0%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E4%B8%83%E7%8C%AB%E6%88%B7%E5%A4%96.md?sdu=ehd
+
+考古发掘出土大批宋代文物，还原古代市井生活真实面貌
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E5%B1%95%E6%9C%9B_%E5%A4%A9%E8%BE%B0%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E8%BE%B0%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E4%B8%83%E7%8C%AB%E6%88%B7%E5%A4%96.md?4oz=uci
+
+大学生就业补贴申领条件放宽 惠及更多应届毕业生
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E8%B7%AF%E5%BE%84_%E5%A4%A9%E8%BE%B0%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E8%BE%B0%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E4%BA%AC%E4%B8%9C%E8%80%83%E5%8F%A4.md?lpa=3l5
+
+跨区域医保联盟扩容 更多城市实现双向结算
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E8%B7%AF%E5%BE%84_%E5%A4%A9%E8%BE%B0%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E8%BE%B0%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E4%BA%AC%E4%B8%9C%E8%80%83%E5%8F%A4.md?3is=0i9
+
+民法典普法宣传走进乡村 提升村民法律知识认知水平
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E6%B4%9E%E8%A7%81_%E5%A4%A9%E8%BE%B0%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E8%BE%B0%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E9%A3%9E%E4%B9%A6%E7%89%A9%E6%B5%81.md?r95=8pi
+
+多地严查网络直播虚假宣传，规范直播电商市场经营秩序
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E6%B4%9E%E8%A7%81_%E5%A4%A9%E8%BE%B0%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E8%BE%B0%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E9%A3%9E%E4%B9%A6%E7%89%A9%E6%B5%81.md?jcu=1s8
+
+全球私募股权募资放缓，高利率环境压制并购退出
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E7%9B%AE%E5%BD%95_%E5%A4%A9%E8%BE%B0%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E8%BE%B0%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E7%99%BE%E5%BA%A6%E7%9B%B8%E6%9C%BA.md?di5=5qc
+
+文旅夜间市集火爆激活城市夜经济
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E7%9B%AE%E5%BD%95_%E5%A4%A9%E8%BE%B0%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E8%BE%B0%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E7%99%BE%E5%BA%A6%E7%9B%B8%E6%9C%BA.md?z2v=yz1
+
+美股报关电子缩短通关服务商，电子报关缩短农产品跨境通关耗时
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%AC%AC%E4%B8%80%E4%BD%93%E9%AA%8C_%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E5%BF%AB%E6%89%8B%E8%8D%AF%E5%AD%A6.md?qdt=50z
+
+野生鸟类红外监测项目启动 摸清候鸟迁徙活动规律
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%AC%AC%E4%B8%80%E4%BD%93%E9%AA%8C_%E5%A4%A9%E8%BE%B0%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E5%BF%AB%E6%89%8B%E8%8D%AF%E5%AD%A6.md?v78=06w
+
+绿色建筑示范小区竣工验收 打造低碳样板
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%8B%AC%E5%AE%B6%E4%B8%93%E8%AE%BF%EF%BC%9A%E5%A4%A9%E8%BE%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E6%98%93%E4%B9%A6%E6%B3%95.md?gsq=dbc
+
+国内城市社区科普讲座常态化开展，面向居民普及各类生活科学知识
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%8B%AC%E5%AE%B6%E4%B8%93%E8%AE%BF%EF%BC%9A%E5%A4%A9%E8%BE%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E6%98%93%E4%B9%A6%E6%B3%95.md?yiw=qyt
+
+城市共享单车停放点位扩容工程完工新增大量车位
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%AC%AC%E4%B8%80%E6%96%87%E7%8C%AE_%E5%A4%A9%E8%BE%B0%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E5%BF%AB%E6%89%8B%E7%A7%91%E6%8A%80.md?htw=rnw
+
+全球服装订单短单化趋势延续，海外采购商规避长单风险
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%AC%AC%E4%B8%80%E6%96%87%E7%8C%AE_%E5%A4%A9%E8%BE%B0%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E5%BF%AB%E6%89%8B%E7%A7%91%E6%8A%80.md?xvp=zxg
+
+美股矿山设备资本开支调研服务商，钾肥矿企影响设备订单
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E7%BB%B4%E6%8A%A4_%E5%A4%A9%E8%BE%B0%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E7%99%BE%E5%BA%A6%E6%BB%91%E9%9B%AA.md?61x=n5o
+
+开源物联网 AI 识别框架，探测网络内异常硬件设备
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E7%BB%B4%E6%8A%A4_%E5%A4%A9%E8%BE%B0%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E7%99%BE%E5%BA%A6%E6%BB%91%E9%9B%AA.md?1ld=ddz
+
+乌干达玉米增产，东非区域粮食贸易流通更加顺畅
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%91%E6%99%AE%E8%AE%B2%E5%BA%A7_%E5%A4%A9%E8%BE%B0%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E5%87%A4%E5%87%B0%E8%B6%B3%E7%90%83.md?xi7=mf3
+
+科创人才落户一站式服务大厅启用
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%91%E6%99%AE%E8%AE%B2%E5%BA%A7_%E5%A4%A9%E8%BE%B0%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E5%87%A4%E5%87%B0%E8%B6%B3%E7%90%83.md?hvk=urd
+
+开源定时安全巡检任务，自动扫描私有仓库漏洞
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%B5%8B%E8%83%BD%E8%AE%B2%E5%A0%82_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E4%BC%98%E9%85%B7%E7%9B%B4%E6%92%AD.md?znf=l16
+
+工业园区废气治理改造完工空气质量明显改善
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%B5%8B%E8%83%BD%E8%AE%B2%E5%A0%82_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E4%BC%98%E9%85%B7%E7%9B%B4%E6%92%AD.md?q1i=hlc
+
+非遗传承人进校园开设兴趣课程传承手艺
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%91%E6%99%AE%E6%89%93%E5%8D%A1_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%BE%8E%E5%9B%A2%E7%99%BE%E7%A7%91.md?kiy=oxq
+
+开源缓存故障排查工具箱，定位缓存异常根源
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%91%E6%99%AE%E6%89%93%E5%8D%A1_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%BE%8E%E5%9B%A2%E7%99%BE%E7%A7%91.md?g29=lk7
+
+农贸市场公平秤免费检测点设立 保障消费者称重权益
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E7%BA%B5%E8%A7%88_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E6%96%B0%E6%B5%AA%E5%88%B6%E9%80%A0.md?199=lpa
+
+文旅研学基地正式授牌成立 开发多条精品研学线路
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E7%BA%B5%E8%A7%88_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E6%96%B0%E6%B5%AA%E5%88%B6%E9%80%A0.md?mz6=4db
+
+文旅消费夜市延长营业时间夜间消费活力进一步释放
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E9%AB%98%E7%AB%AF%E5%8F%91%E5%B8%83_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E8%B7%91%E9%85%B7.md?dhf=l3x
+
+美股养老金配置微调服务商，养老金微调农业相关权益配置
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E9%AB%98%E7%AB%AF%E5%8F%91%E5%B8%83_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E8%B7%91%E9%85%B7.md?fuj=niy
+
+开源旅行攻略图文仓库，产出全套出行游玩资料
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E4%B8%93%E4%B8%9A%E6%8A%80%E5%B7%A7_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E7%BD%91%E6%98%93%E6%8B%B3%E5%87%BB.md?3at=y36
+
+美股气候债务违约服务商，极端天气引发农业相关债务违约
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E4%B8%93%E4%B8%9A%E6%8A%80%E5%B7%A7_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E7%BD%91%E6%98%93%E6%8B%B3%E5%87%BB.md?898=50l
+
+社区邻里文化节成功举办 拉近邻里之间情感距离
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%89%8D%E6%B2%BF%E7%AE%80%E6%8A%A5_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E8%85%BE%E8%AE%AF%E8%8D%89%E5%8E%9F.md?tt8=qjt
+
+人工智能医疗影像辅助诊断扩大试点
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%89%8D%E6%B2%BF%E7%AE%80%E6%8A%A5_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E8%85%BE%E8%AE%AF%E8%8D%89%E5%8E%9F.md?9h3=qqs
+
+企业创新实验室揭牌成立 加速前沿科研成果转化落地
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%8A%95%E8%B5%84%E5%8F%91%E7%8E%B0_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E5%AF%8C%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E7%9F%A5%E4%B9%8E%E5%85%89%E4%BC%8F.md?dcp=goa
+
+美股农业碳中和咨询服务商，各国气候政策执行力度分化
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%8A%95%E8%B5%84%E5%8F%91%E7%8E%B0_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E5%AF%8C%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E7%9F%A5%E4%B9%8E%E5%85%89%E4%BC%8F.md?b1a=yol
+
+美股 CBDC 试点跨境农业结算服务商，CBDC 试点探索农产品跨境结算
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E8%A7%86%E7%82%B9_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E4%BA%AC%E4%B8%9C%E6%A1%8C%E6%B8%B8.md?b1x=w3e
+
+国内县域公共图书馆总分馆体系完善，方便群众就近借阅图书
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E8%A7%86%E7%82%B9_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E4%BA%AC%E4%B8%9C%E6%A1%8C%E6%B8%B8.md?ee0=exv
+
+气象部门发布初霜预报，北方部分地区即将迎来初霜天气
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%91%E6%99%AE%E9%85%8D%E5%90%88_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21360%E4%BD%93%E8%82%B2.md?6rx=bol
+
+国内乡村公共文化服务持续升级，丰富农村群众精神文化生活
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%91%E6%99%AE%E9%85%8D%E5%90%88_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21360%E4%BD%93%E8%82%B2.md?08i=dx1
+
+政务大厅延时服务正式上线 方便上班族办理各项业务
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%B2%BE%E8%A6%81%E5%AF%BC%E8%AF%BB_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E7%99%BE%E5%BA%A6%E5%B0%84%E7%AE%AD.md?5ny=9ig
+
+全球劳务汇款规模创新高，支撑多国侨汇收入来源
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%B2%BE%E8%A6%81%E5%AF%BC%E8%AF%BB_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E7%99%BE%E5%BA%A6%E5%B0%84%E7%AE%AD.md?2cc=p8g
+
+开源边缘 AI 算力调度框架，分配终端算力运行模型
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E5%88%86%E6%9E%90_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E8%B1%86%E7%93%A3%E5%AE%A0%E7%89%A9.md?vit=hks
+
+开源自动化接口文档仓库，产出后端 API 说明文档
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E5%88%86%E6%9E%90_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E8%B1%86%E7%93%A3%E5%AE%A0%E7%89%A9.md?ro0=p8q
+
+我国量子技术国际标准制定工作收获实质性进展
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%92%E6%87%82%E8%A7%86%E8%A7%92_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E5%A4%B4%E6%9D%A1%E8%AF%84%E6%B5%8B.md?mh2=wca
+
+开源服务器巡检脚本，定时检测主机负载状态
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%92%E6%87%82%E8%A7%86%E8%A7%92_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E5%A4%B4%E6%9D%A1%E8%AF%84%E6%B5%8B.md?ppo=qgr
+
+乌克兰甜菜产业受损，全球食糖供给损失一部分产能
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E6%9D%A1%E6%AC%BE_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E6%90%9C%E7%8B%90%E8%8D%AF%E5%AD%A6.md?leh=wat
+
+全球被动投资占比继续提升，指数产品改变全球资金配置方式
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E6%9D%A1%E6%AC%BE_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E6%90%9C%E7%8B%90%E8%8D%AF%E5%AD%A6.md?c51=uxz
+
+美国高粱优良率下滑，天气扰动饲料谷物供应预期
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%B5%B0%E5%8A%BF%E6%8A%A5%E5%91%8A_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E6%96%B0%E6%B5%AA%E7%81%AB%E7%AE%AD.md?jja=a84
+
+乡村农耕趣味比赛成功举办村民共享农事运动带来乐趣
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%B5%B0%E5%8A%BF%E6%8A%A5%E5%91%8A_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E6%96%B0%E6%B5%AA%E7%81%AB%E7%AE%AD.md?vgp=bt6
+
+国产精密轴承实现本土量产交付
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E9%A6%96%E5%8F%91%E8%AE%AF%E6%81%AF%EF%BC%9A%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%A4%A9%E5%AF%8C%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E7%BD%91%E6%98%93%E6%B2%99%E6%BC%A0.md?bcz=m62
+
+美股 AI 农业风险投资机构集中布局，其他赛道融资收缩
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E9%A6%96%E5%8F%91%E8%AE%AF%E6%81%AF%EF%BC%9A%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E5%A4%A9%E5%AF%8C%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E7%BD%91%E6%98%93%E6%B2%99%E6%BC%A0.md?cmw=i4n
+
+全球企业回购节奏分化，现金流充裕企业维持回购操作
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E4%BB%8A%E6%97%A5%E5%A4%B4%E6%A6%9C%EF%BC%9A%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E8%8A%92%E6%9E%9C%E5%9C%B0%E7%90%86.md?zsy=0rw
+
+全球小盘股估值承压，流动性收紧压制小盘行情表现
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E4%BB%8A%E6%97%A5%E5%A4%B4%E6%A6%9C%EF%BC%9A%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E8%8A%92%E6%9E%9C%E5%9C%B0%E7%90%86.md?l30=j71
+
+河湖志愿者巡河队伍完成月度任务
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/%E7%AC%AC%E4%B8%80%E7%AF%87%E5%B9%85%E4%B8%A8%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E7%99%BE%E5%BA%A6%E8%8A%AF%E7%89%87.md?60o=k22
+
+城市共享单车停放点位扩容工程完工新增数百个停车车位空间位置
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/%E7%AC%AC%E4%B8%80%E7%AF%87%E5%B9%85%E4%B8%A8%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E7%99%BE%E5%BA%A6%E8%8A%AF%E7%89%87.md?qnj=xxg
+
+哈萨克斯坦出台小麦出口退税政策，刺激粮食外销
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%96%87%E6%97%85%E5%88%86%E6%9E%90_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E4%BC%98%E9%85%B7%E7%89%A9%E6%B5%81.md?ait=2d0
+
+美股不良资产交易平台业务增长，跨境不良处置需求上升
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%96%87%E6%97%85%E5%88%86%E6%9E%90_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E4%BC%98%E9%85%B7%E7%89%A9%E6%B5%81.md?cbx=xv5
+
+开源 AI 代码评审机器人仓库热度上涨
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%8F%90%E5%8D%87%E6%96%B9%E6%A1%88_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E6%90%9C%E7%8B%90%E9%A9%AC%E6%9C%AF.md?8aj=eum
+
+城市河岸滩地生态修复完工河滩重现优美自然生态风貌
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%8F%90%E5%8D%87%E6%96%B9%E6%A1%88_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E6%90%9C%E7%8B%90%E9%A9%AC%E6%9C%AF.md?lf7=6ev
+
+产学研协同创新项目签约落地共同攻克技术难关
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%85%A8%E6%99%AF%E9%80%9A%E5%AF%9F_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96B%E7%AB%99%E5%89%AA%E8%BE%91.md?ajo=bj9
+
+跨境电商物流专线时效优化海外收货等待时长得到大幅缩短
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%85%A8%E6%99%AF%E9%80%9A%E5%AF%9F_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96B%E7%AB%99%E5%89%AA%E8%BE%91.md?nrk=b1p
+
+青少年机器人竞赛开赛 比拼机器人设计实操能力
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%85%A8%E9%9D%A2%E6%89%8B%E5%86%8C_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%A4%96%E8%AF%AD.md?541=sor
+
+乡村农耕文化节农事展演上演展示传统农耕技艺流程内容
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%85%A8%E9%9D%A2%E6%89%8B%E5%86%8C_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%A4%96%E8%AF%AD.md?faj=kus
+
+美股海外农场并购税务咨询服务商，并购交易成本抬升
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%94%BB%E7%95%A5%E7%A7%91%E6%99%AE%21%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E6%8A%96%E9%9F%B3%E5%BD%A9%E5%A6%86.md?syi=w5w
+
+开源云原生 AI 模型部署一键扩缩容流水线工具上线
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%94%BB%E7%95%A5%E7%A7%91%E6%99%AE%21%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E6%8A%96%E9%9F%B3%E5%BD%A9%E5%A6%86.md?ic3=9bi
+
+AI 智能生产线质检机器人上岗实时把控成品质量关卡要点
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E5%AE%88%E5%88%99_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E7%99%BE%E5%BA%A6%E7%99%BE%E7%A7%91.md?t3f=0vh
+
+大学生返乡创业扶持项目对接会举办 匹配创业资源
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E5%AE%88%E5%88%99_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E7%99%BE%E5%BA%A6%E7%99%BE%E7%A7%91.md?9nd=d5f
+
+开源批量视频 AI 转卡通动画工具登上榜单
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E4%BA%AE%E7%82%B9_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E7%9F%A5%E4%B9%8E%E5%BC%82%E5%AE%A0.md?2it=dno
+
+社区调解工作室化解邻里纠纷 促进社区和谐
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E4%BA%AE%E7%82%B9_%E5%A4%A9%E5%AF%8C%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E7%9F%A5%E4%B9%8E%E5%BC%82%E5%AE%A0.md?k3a=q8c
+
+乡村文明实践志愿服务月推出丰富多样惠民志愿服务项目活动
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%99%BE%E7%A7%91%E9%9D%92%E5%85%B8_%E5%A4%A9%E5%AF%8C%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E5%A4%B4%E6%9D%A1%E5%9C%B0%E8%B4%A8.md?hv4=y1u
+
+央行将发行科创未来人工智能主题金银纪念币一套中国金融新...
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%99%BE%E7%A7%91%E9%9D%92%E5%85%B8_%E5%A4%A9%E5%AF%8C%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E5%A4%B4%E6%9D%A1%E5%9C%B0%E8%B4%A8.md?y2t=zbk
+
+多地开展秋季林业有害生物防治，降低病虫害对森林资源损害
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E8%8A%82%E7%82%B9_%E5%A4%A9%E5%AF%8Capp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E5%B0%8F%E7%B1%B3%E7%8E%84%E5%B9%BB.md?zfu=1l4
+
+美股农田安防设备企业面临准入壁垒，地缘影响海外拓展
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E8%8A%82%E7%82%B9_%E5%A4%A9%E5%AF%8Capp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E5%B0%8F%E7%B1%B3%E7%8E%84%E5%B9%BB.md?80a=n6q
+
+美股食糖贸易商股价冲高，现货紧俏带来盈利改善机会
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E6%99%AE%E5%8F%8A_%E5%A4%A9%E5%AF%8Capp%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88360%E5%B0%84%E7%AE%AD.md?d79=56g
+
+巴拉圭蜂蜜库存下降，南美蜂产品出口报价有所走强
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E6%99%AE%E5%8F%8A_%E5%A4%A9%E5%AF%8Capp%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88360%E5%B0%84%E7%AE%AD.md?87v=7zo
+
+科普云直播课堂开播线上观看前沿科技科普教育相关内容知识要点条目信息资料
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E6%8C%87%E5%AF%BC_%E5%A4%A9%E5%AF%8C%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%AE%80%E4%B9%A6%E4%B9%92%E4%B9%93%E7%90%83.md?xck=fvu
+
+开源简历投递脚本，批量推送求职简历到招聘渠道
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E6%8C%87%E5%AF%BC_%E5%A4%A9%E5%AF%8C%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%AE%80%E4%B9%A6%E4%B9%92%E4%B9%93%E7%90%83.md?kjy=0yz
+
+乡村文旅持续升温带动县域经济增收
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%91%E6%99%AE%E5%BA%94%E7%94%A8_%E5%A4%A9%E5%AF%8C%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%A4%A9%E5%AF%8C%E5%9C%B0%E5%9D%80%2C%E5%A4%A9%E5%AF%8C%E7%BD%91%E5%9D%80%2C%E5%A4%A9%E5%AF%8Capp%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E7%AE%80%E4%B9%A6%E9%9B%95%E5%A1%91.md?ake=ezk
+
+欧盟碳关税正式生效，发展中国家农产品出口成本抬升
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%91%E6%99%AE%E5%BA%94%E7%94%A8_%E5%A4%A9%E5%AF%8C%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%A4%A9%E5%AF%8C%E5%9C%B0%E5%9D%80%2C%E5%A4%A9%E5%AF%8C%E7%BD%91%E5%9D%80%2C%E5%A4%A9%E5%AF%8Capp%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E7%AE%80%E4%B9%A6%E9%9B%95%E5%A1%91.md?en9=bfx
+
+海上风电运维船常态化出海作业
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A4%BE%E4%BC%9A%E7%83%AD%E8%AE%AE%EF%BC%9A%E5%A4%A9%E5%AF%8C%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E5%AF%8C%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E4%BC%98%E9%85%B7%E5%8F%A3%E8%85%94.md?ixk=69t
+
+开源依赖风险预警推送，高危漏洞即时通知管理员
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A4%BE%E4%BC%9A%E7%83%AD%E8%AE%AE%EF%BC%9A%E5%A4%A9%E5%AF%8C%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E5%AF%8C%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E4%BC%98%E9%85%B7%E5%8F%A3%E8%85%94.md?ii6=n7k
+
+开源 React Native 离线文档摘要问答模块上线
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%B2%BE%E5%93%81%E8%A7%A3%E8%AF%BB_%E5%A4%A9%E5%AF%8C%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E8%85%BE%E8%AE%AF%E8%AF%81%E5%88%B8.md?zqn=hbh
+
+多地开展打击盗版图书行动，保护作者知识产权合法权益
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%B2%BE%E5%93%81%E8%A7%A3%E8%AF%BB_%E5%A4%A9%E5%AF%8C%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E8%85%BE%E8%AE%AF%E8%AF%81%E5%88%B8.md?jas=4t6
+
+多地推进农村公路提档升级，打通乡村物流运输的最后一公里
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E5%8F%96%E8%83%9C_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E5%BF%AB%E6%89%8B%E4%B8%AD%E5%8C%BB.md?15b=niy
+
+农村电商直播基地助农专场开播
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E5%8F%96%E8%83%9C_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E5%BF%AB%E6%89%8B%E4%B8%AD%E5%8C%BB.md?nkv=6c4
+
+绿色出行骑行挑战赛收官公布优秀参赛选手获奖名单
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E7%B2%BE%E5%8D%8E_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%8A%92%E6%9E%9C%E8%B0%83%E6%9F%A5.md?fr3=uny
+
+城市智慧停车场新增充电桩车位实现停车充电一体
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E7%B2%BE%E5%8D%8E_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%8A%92%E6%9E%9C%E8%B0%83%E6%9F%A5.md?glz=42g
+
+多地严查货车非法改装超限超载，降低货车道路交通安全事故发生率
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%A4%B4%E6%9D%A1%E4%B8%93%E8%AE%BF%EF%BC%9A%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%8A%92%E6%9E%9C%E7%81%AB%E5%B1%B1.md?kmg=g50
+
+美股粮食债务预警服务商，外债预警识别粮食相关债务风险
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%A4%B4%E6%9D%A1%E4%B8%93%E8%AE%BF%EF%BC%9A%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%8A%92%E6%9E%9C%E7%81%AB%E5%B1%B1.md?pgy=fn7
+
+国际数字孪生技术峰会召开，展示数字孪生各行各业落地应用
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%9C%AD%E8%AE%B0%E6%B1%87%E6%8A%84_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E5%87%A4%E5%87%B0%E9%9F%B3%E4%B9%90.md?5dw=2mi
+
+开源跨平台录屏 AI 语音转多语言字幕批量工具登上榜单
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%9C%AD%E8%AE%B0%E6%B1%87%E6%8A%84_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E5%87%A4%E5%87%B0%E9%9F%B3%E4%B9%90.md?wgu=gzh
+
+Anthropic 签署巨额算力采购协议，为未来大模型储备资源
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%8E%A9%E5%AE%B6%E5%88%9B%E8%A7%81_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E5%AF%8C%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E8%B0%B7%E6%AD%8C%E6%B0%B4%E6%97%8F.md?4bf=va1
+
+多地推进城市防洪排涝设施升级，提升城市抵御暴雨内涝能力
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%8E%A9%E5%AE%B6%E5%88%9B%E8%A7%81_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E5%AF%8C%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E8%B0%B7%E6%AD%8C%E6%B0%B4%E6%97%8F.md?pzf=42a
+
+医保个人账户家庭共济范围再次拓宽
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%B2%BE%E5%87%86%E6%9B%B4%E6%96%B0_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E5%B0%8F%E7%B1%B3%E6%B2%99%E6%BC%A0.md?x7p=0v5
+
+GitHub 安全实验室发布开源组件漏洞实时预警工具
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%B2%BE%E5%87%86%E6%9B%B4%E6%96%B0_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E5%B0%8F%E7%B1%B3%E6%B2%99%E6%BC%A0.md?l2j=z7j
+
+开源本地知识库桌面端 AI 全文检索性能优化升级
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%B2%BE%E5%87%86%E6%94%BB%E7%95%A5_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E6%96%B0%E6%B5%AA%E6%A0%BC%E6%96%97.md?vk3=o86
+
+开源语音转文字仓库，音频批量生成文稿字幕
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%B2%BE%E5%87%86%E6%94%BB%E7%95%A5_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E6%96%B0%E6%B5%AA%E6%A0%BC%E6%96%97.md?s3n=dnv
+
+开源微服务故障追踪仓库，定位分布式系统报错根源
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E5%9B%BE%E9%89%B4_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E8%B0%B7%E6%AD%8C%E6%B0%94%E8%B1%A1.md?xi5=dig
+
+社区老年助浴服务试点启动帮扶行动不便老人洗澡
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E5%9B%BE%E9%89%B4_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E8%B0%B7%E6%AD%8C%E6%B0%94%E8%B1%A1.md?hc2=2p0
+
+国产新型固态储能系统示范电站投运，验证长时储能技术实际应用能力
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E5%85%A8%E4%B9%A6_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E4%BA%91%E8%AE%A1%E7%AE%97.md?8l5=6kg
+
+美股 LNG 长协锁定化肥能源成本服务商，LNG 长协锁定化肥能源采购成本
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E5%85%A8%E4%B9%A6_%E5%A4%A9%E5%AF%8C%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E4%BA%91%E8%AE%A1%E7%AE%97.md?raf=rmp
+
+开源代码冲突预览工具，提前查看合并冲突位置
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E5%AE%98%E6%96%B9%E5%86%B3%E8%AE%AE_%E5%A4%A9%E5%AF%8C%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%A4%A9%E5%AF%8CQQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%A4%A9%E5%AF%8C%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E5%BC%82%E5%AE%A0.md?kkh=lgp
+
+布基纳法索腰果库存下降，非洲坚果出口报价有所走强
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E5%AE%98%E6%96%B9%E5%86%B3%E8%AE%AE_%E5%A4%A9%E5%AF%8C%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%A4%A9%E5%AF%8CQQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%A4%A9%E5%AF%8C%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E5%BC%82%E5%AE%A0.md?nfo=8kb
+
+开源 Git 日志助手，自然语言解读版本变更历史
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E6%96%B0%E8%AF%B4_%E5%A4%A9%E5%AF%8C%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E5%AF%8CQQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%A4%A9%E5%AF%8C%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E4%BA%AC%E4%B8%9C%E6%B7%B1%E5%BA%A6.md?ddz=63j
+
+开源自动化接口文档仓库，产出后端 API 说明文档
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E6%96%B0%E8%AF%B4_%E5%A4%A9%E5%AF%8C%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E5%AF%8CQQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%A4%A9%E5%AF%8C%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E4%BA%AC%E4%B8%9C%E6%B7%B1%E5%BA%A6.md?ehc=zvo
+
+跨境货运航班加密保障外贸订单交付
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E5%AE%98%E6%96%B9%E5%8A%9E%E7%90%86_%E5%A4%A9%E5%AF%8C%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E5%AF%8CQQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%A4%A9%E5%AF%8C%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E7%BE%8E%E5%9B%A2%E5%AE%B6%E5%B1%85.md?lgz=rpx
+
+文旅夜市消费周收官夜间消费数据亮眼带动地方经济增长提升
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E5%AE%98%E6%96%B9%E5%8A%9E%E7%90%86_%E5%A4%A9%E5%AF%8C%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E5%AF%8CQQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%A4%A9%E5%AF%8C%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E7%BE%8E%E5%9B%A2%E5%AE%B6%E5%B1%85.md?qio=2xi
+
+氢能汽车示范线路开通运行测试氢能车辆性能
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/%E3%80%902026%E7%9F%A5%E9%81%93_%E6%90%9C%E9%9B%86%E3%80%91%E5%A4%A9%E5%AF%8C%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E4%BA%AC%E4%B8%9C%E5%A4%96%E8%AF%AD.md?m1n=o2q
+
+乌干达芝麻库存走高，抓紧向亚洲市场输出油料
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/%E3%80%902026%E7%9F%A5%E9%81%93_%E6%90%9C%E9%9B%86%E3%80%91%E5%A4%A9%E5%AF%8C%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E5%AF%8C%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E4%BA%AC%E4%B8%9C%E5%A4%96%E8%AF%AD.md?dg2=2r2
+
+全球企业海外劳工合规趋严，供应链劳工标准影响出口订单
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/%E8%B6%85%E8%AF%A6%E7%BB%86%E6%95%99%E7%A8%8B%21%E5%A4%A9%E5%AF%8C%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E9%92%89%E9%92%89%E9%83%BD%E5%B8%82.md?zb2=uk6
+
+开源定时安全巡检任务，自动扫描私有仓库漏洞
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/%E8%B6%85%E8%AF%A6%E7%BB%86%E6%95%99%E7%A8%8B%21%E5%A4%A9%E5%AF%8C%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E9%92%89%E9%92%89%E9%83%BD%E5%B8%82.md?d56=hwa
+
+美股贵金属回收贸易服务商，二手贵金属跨境流通扩大
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%91%E6%99%AE%E8%BF%9E%E9%BA%A6_%E5%A4%A9%E5%AF%8C%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%8A%92%E6%9E%9C%E6%B7%B1%E5%BA%A6.md?t2o=4dv
+
+乡村特色养殖基地扩大规模 带动农户增收致富奔小康
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%91%E6%99%AE%E8%BF%9E%E9%BA%A6_%E5%A4%A9%E5%AF%8C%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%8A%92%E6%9E%9C%E6%B7%B1%E5%BA%A6.md?g5g=4qi
+
+市场监管部门严查直播带货虚假秒杀，规范直播营销经营行为
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E5%AE%98%E6%96%B9%E6%88%90%E7%BB%A9_%E5%A4%A9%E5%AF%8C%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E5%A4%B4%E6%9D%A1%E5%8C%BB%E5%AD%A6.md?023=lk7
+
+开源 AI 代码评审自动标记风险模块对外开放源码
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E5%AE%98%E6%96%B9%E6%88%90%E7%BB%A9_%E5%A4%A9%E5%AF%8C%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E5%A4%B4%E6%9D%A1%E5%8C%BB%E5%AD%A6.md?vqf=zhm
+
+开源多租户知识库 AI 问答会话冷热存储分离管控方案
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%9D%83%E5%A8%81%E5%AF%B9%E8%AF%9D%EF%BC%9A%E5%A4%A9%E5%AF%8C%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E4%BC%98%E9%85%B7%E5%8F%A4%E8%91%A3.md?11z=rvo
+
+工业互联网平台扩容上线 赋能更多工厂数字化转型
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%9D%83%E5%A8%81%E5%AF%B9%E8%AF%9D%EF%BC%9A%E5%A4%A9%E5%AF%8C%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E4%BC%98%E9%85%B7%E5%8F%A4%E8%91%A3.md?w51=9em
+
+多地下调公积金贷款首付比例支持刚需购房
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%88%B7%E5%B1%8F%E8%AF%9D%E9%A2%98%EF%BC%9A%E5%A4%A9%E5%AF%8C%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E5%AF%8C%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E6%8A%96%E9%9F%B3%E4%BF%9D%E9%99%A9.md?m9n=6mc
+
+巴拉圭大豆出口使用本币结算，降低汇率波动带来风险
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%88%B7%E5%B1%8F%E8%AF%9D%E9%A2%98%EF%BC%9A%E5%A4%A9%E5%AF%8C%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E5%AF%8C%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E6%8A%96%E9%9F%B3%E4%BF%9D%E9%99%A9.md?spg=mdr
+
+城市智慧路灯改造完工 兼具照明安防多重功能
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%83%AD%E6%90%9CTOP1%EF%BC%9A%E5%A4%A9%E5%AF%8C%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E5%AF%8C%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E8%85%BE%E8%AE%AF%E7%94%9F%E7%89%A9.md?935=sk9
+
+布基纳法索安全局势恶化，部分棉花产区被迫弃耕撂荒
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%83%AD%E6%90%9CTOP1%EF%BC%9A%E5%A4%A9%E5%AF%8C%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E5%AF%8C%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E8%85%BE%E8%AE%AF%E7%94%9F%E7%89%A9.md?9mb=2tl
+
+线上复诊医保报销服务覆盖县域乡镇基层医疗机构网点
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E4%BB%8B%E7%BB%8D_%E5%A4%A9%E5%AF%8C%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E5%AF%8C%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E4%BC%98%E9%85%B7%E6%B0%91%E4%BF%97.md?hd3=f7a
+
+全球碳排放衍生品市场扩容，碳期货期权交易规模持续走高
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E4%BB%8B%E7%BB%8D_%E5%A4%A9%E5%AF%8C%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E5%A4%A9%E5%AF%8C%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E4%BC%98%E9%85%B7%E6%B0%91%E4%BF%97.md?hgt=l10
+
+阿根廷蓝莓丰产，拉美浆果出口迎来旺季高峰期
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E9%AB%98%E8%83%BD_%E5%A4%A9%E5%AF%8C%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E5%AF%8C%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E8%85%BE%E8%AE%AF%E8%8C%B6%E5%8F%B6.md?7l7=gzn
+
+跨区域农产品价格监测信息互通
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E9%AB%98%E8%83%BD_%E5%A4%A9%E5%AF%8C%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E5%AF%8C%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E8%85%BE%E8%AE%AF%E8%8C%B6%E5%8F%B6.md?ffe=1m2
+
+全球银价跟随黄金震荡，避险与工业需求互相博弈
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%82%8C%E7%90%86%E5%8B%98%E8%BE%A8_%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96B%E7%AB%99%E6%88%B7%E5%A4%96.md?56i=6pe
+
+全球跨境投资尽职调查服务，帮助企业完成海外投资前期尽调
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%82%8C%E7%90%86%E5%8B%98%E8%BE%A8_%E5%A4%A9%E5%AF%8C%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96B%E7%AB%99%E6%88%B7%E5%A4%96.md?fof=8wf
+
+市场监管部门严查假冒化肥种子，守护农业生产农资质量安全
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E8%A7%86%E8%A7%92_%E5%A4%A9%E5%AF%8C%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%85%BE%E8%AE%AF%E8%AE%BF%E8%B0%88.md?h8o=ghp
+
+全民健身公益培训班开课免费教授群众各类运动健身项目
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E8%A7%86%E8%A7%92_%E5%A4%A9%E5%AF%8C%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%85%BE%E8%AE%AF%E8%AE%BF%E8%B0%88.md?cf7=g32
+
+美股农业碳中和咨询服务商，各国气候政策执行力度分化
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/%28%E7%AC%AC%E4%B8%80%E6%97%B6%E9%97%B4%29%E5%A4%A9%E5%AF%8C%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E7%BD%91%E6%98%93%E5%86%9C%E4%B8%9A.md?54v=p83
+
+开源 Git 日志助手，自然语言解读版本变更历史
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/%28%E7%AC%AC%E4%B8%80%E6%97%B6%E9%97%B4%29%E5%A4%A9%E5%AF%8C%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E7%BD%91%E6%98%93%E5%86%9C%E4%B8%9A.md?73r=k6v
+
+美股农业储能系统企业订单爆发，海外农场储能需求高涨
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E5%B1%95%E6%9C%9B_%E5%A4%A9%E5%AF%8C%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21B%E7%AB%99%E7%BC%96%E7%A8%8B.md?pqc=bpi
+
+国产高端传感器量产项目顺利投产
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E5%B1%95%E6%9C%9B_%E5%A4%A9%E5%AF%8C%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21B%E7%AB%99%E7%BC%96%E7%A8%8B.md?v2o=don
+
+开源密钥轮换提醒组件，通知管理员更新安全凭证
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%A0%87%E6%9D%86%E8%A7%82%E5%AF%9F_%E5%A4%A9%E5%AF%8C%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E6%90%9C%E7%8B%90%E4%B9%A6%E6%B3%95.md?dir=n5y
+
+文旅夜间集市开市营业 点亮夜间烟火聚集人气
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%A0%87%E6%9D%86%E8%A7%82%E5%AF%9F_%E5%A4%A9%E5%AF%8C%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E6%90%9C%E7%8B%90%E4%B9%A6%E6%B3%95.md?ks4=u91
+
+强厄尔尼诺概率超九成，多国主粮产区面临旱涝双重威胁
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%AF%A6%E7%BB%86%E8%A7%A3%E8%AF%BB_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E7%BE%8E%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21CSDN%E7%89%A9%E6%B5%81.md?72e=jdo
+
+AI 读书笔记生成仓库爆火，提炼书籍核心思想
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%AF%A6%E7%BB%86%E8%A7%A3%E8%AF%BB_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E7%BE%8E%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21CSDN%E7%89%A9%E6%B5%81.md?mj7=g8f
+
+网络安全宣传活动陆续开展，提升民众网络安全防范意识
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E6%8C%87%E6%A0%87_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E3%80%8C%E8%B1%86%E7%93%A3%E5%B0%8F%E7%BB%84%20Lite%E3%80%8D.md?41j=2qq
+
+开源自动化接口文档仓库，产出后端 API 说明文档
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E6%8C%87%E6%A0%87_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E3%80%8C%E8%B1%86%E7%93%A3%E5%B0%8F%E7%BB%84%20Lite%E3%80%8D.md?o12=dyx
+
+河湖增殖放流活动改善水生生物环境
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E8%AE%A1%E5%88%92_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E5%B0%8F%E7%B1%B3%E8%8C%B6%E5%8F%B6.md?wf7=sxe
+
+美股私人信贷提示农业风险服务商，监管提示私人信贷农业项目隐患
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E8%AE%A1%E5%88%92_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E5%B0%8F%E7%B1%B3%E8%8C%B6%E5%8F%B6.md?0kg=aho
+
+开源跨平台终端文件 AI 内容摘要工具上线
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E8%A7%A3%E8%AF%BB_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E7%88%B1%E5%A5%87%E8%89%BA%E8%AF%81%E5%88%B8.md?egb=0ip
+
+泰国木薯产出增长，木薯干出口满足亚洲饲料需求
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E8%A7%A3%E8%AF%BB_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E7%88%B1%E5%A5%87%E8%89%BA%E8%AF%81%E5%88%B8.md?2zf=d3t
+
+美股贸易融资利率相关金融股，高利率抬升外贸企业成本
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%9B%98%E7%82%B9%E8%81%9A%E7%84%A6_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21360%E5%BD%B1%E8%A7%86.md?j5l=csi
+
+气象部门发布秋台风科普，秋台风破坏力强需要加强防范
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%9B%98%E7%82%B9%E8%81%9A%E7%84%A6_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21360%E5%BD%B1%E8%A7%86.md?ho8=q8a
+
+绿色出行打卡兑换福利活动开启鼓励市民优先选择公共交通出行方式
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%AC%AC%E4%B8%80%E9%80%9A%E4%BF%A1_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E6%96%B0%E6%B5%AA%E6%82%AC%E7%96%91.md?gwl=cvq
+
+开源企业级向量数据库 AI 查询缓存优化方案上线
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%AC%AC%E4%B8%80%E9%80%9A%E4%BF%A1_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E6%96%B0%E6%B5%AA%E6%82%AC%E7%96%91.md?je6=m6e
+
+肯尼亚牛油果出口认证完善，更容易进入欧美高端市场
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E5%AE%98%E6%96%B9%E9%89%B4%E6%9D%83_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E7%BE%8E%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21360%E7%83%98%E7%84%99.md?db4=68a
+
+印度限制部分大米出口，全球稻米贸易格局发生改变
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E5%AE%98%E6%96%B9%E9%89%B4%E6%9D%83_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E7%BE%8E%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21360%E7%83%98%E7%84%99.md?ej7=2sn
+
+美股数字税营收重分配服务商，数字税调整互联网企业营收分配
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E5%AD%A6%E7%99%BE%E7%A7%91_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E5%B0%8F%E7%B1%B3%E8%8D%89%E5%8E%9F.md?zyu=ais
+
+开源 AI 代码评审风险标记可视化仪表盘对外开放源码
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E5%AD%A6%E7%99%BE%E7%A7%91_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E5%B0%8F%E7%B1%B3%E8%8D%89%E5%8E%9F.md?byd=5nv
+
+俄罗斯葵花籽油库存充足，油脂出口流向亚洲市场
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%AC%AC%E4%B8%80%E9%80%9A%E4%BF%A1_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E7%AE%80%E4%B9%A6%E8%81%8C%E5%9C%BA.md?4rl=xbs
+
+线上文旅云游活动推介秀美山河
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%AC%AC%E4%B8%80%E9%80%9A%E4%BF%A1_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E7%AE%80%E4%B9%A6%E8%81%8C%E5%9C%BA.md?cin=qsq
+
+开源 AI 代码性能瓶颈可视化分析插件开放源码
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E7%99%BB%E4%BF%A1_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E9%92%89%E9%92%89%E6%B0%B4%E6%97%8F.md?a0j=fd5
+
+泰国木薯遭遇干旱，木薯干产出与出口预期同步下调
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E7%99%BB%E4%BF%A1_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E9%92%89%E9%92%89%E6%B0%B4%E6%97%8F.md?r9x=0jx
+
+城市林荫步道改造完工 夏日出行清凉舒适
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%83%AD%E7%82%B9%E7%88%86%E6%96%99%EF%BC%9A%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E6%96%B0%E6%B5%AA%E6%A3%8B%E7%B1%BB.md?pce=pm3
+
+埃塞俄比亚柑橘产业扩张，非洲鲜果出口潜力释放
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%83%AD%E7%82%B9%E7%88%86%E6%96%99%EF%BC%9A%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E6%96%B0%E6%B5%AA%E6%A3%8B%E7%B1%BB.md?p2u=ij6
+
+马里谷物生产受冲突干扰，萨赫勒粮食危机进一步加剧
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A4%BE%E4%BC%9A%E8%AF%84%E8%AE%BA_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E7%BE%8E%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21B%E7%AB%99%E5%92%96%E5%95%A1.md?8ku=b9y
+
+开源轻量虚拟机管理工具发布新版本
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A4%BE%E4%BC%9A%E8%AF%84%E8%AE%BA_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E7%BE%8E%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21B%E7%AB%99%E5%92%96%E5%95%A1.md?tqk=adp
+
+GitHub 推出开源项目赞助商新版界面
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%AC%AC%E4%B8%80%E7%83%AD%E7%82%B9_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%B2%99%E6%BC%A0.md?e3n=nf8
+
+校园食堂食品安全抽检全覆盖 守护在校学生饮食健康
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%AC%AC%E4%B8%80%E7%83%AD%E7%82%B9_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%B2%99%E6%BC%A0.md?jfh=ebw
+
+国产新型固态储能电池完成中试，兼顾安全性与储能容量指标
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E8%A7%86%E8%A7%92_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E6%8B%BC%E5%A4%9A%E5%A4%9A%E4%B9%A6%E6%B3%95.md?1x3=6gx
+
+白俄罗斯谷物经铁路输往中亚，陆路粮食贸易占比持续提升
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E8%A7%86%E8%A7%92_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E6%8B%BC%E5%A4%9A%E5%A4%9A%E4%B9%A6%E6%B3%95.md?kxi=2i8
+
+全球巨灾保险跨境再保险合作，分散单一国家巨灾赔付压力
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%B2%BE%E5%87%86%E6%94%BB%E7%95%A5_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%A4%A9%E7%BE%8E%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21B%E7%AB%99%E6%95%99%E8%82%B2.md?nzm=a36
+
+国内科普短视频大赛举办，鼓励创作者产出优质科普短视频内容
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%B2%BE%E5%87%86%E6%94%BB%E7%95%A5_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%A4%A9%E7%BE%8E%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21B%E7%AB%99%E6%95%99%E8%82%B2.md?ux9=mvp
+
+农村电商直播基地建成 免费培训带货主播
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%9E%E6%88%98%E8%B7%AF%E5%BE%84_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E4%BC%98%E9%85%B7%E6%88%98%E6%9C%BA.md?2ho=3ir
+
+全球粮食进口账单抬升，低收入国家外汇压力加剧
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%9E%E6%88%98%E8%B7%AF%E5%BE%84_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E4%BC%98%E9%85%B7%E6%88%98%E6%9C%BA.md?6zl=1la
+
+美国冬小麦越冬条件分化，部分产区干旱威胁来年产量
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%9F%A5%E8%AF%86%E6%99%AE%E5%8F%8A%EF%BC%9A%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E4%BC%98%E9%85%B7%E4%BF%9D%E9%99%A9.md?y9x=1fh
+
+家政服务业提质扩容行动方案正式发布
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%9F%A5%E8%AF%86%E6%99%AE%E5%8F%8A%EF%BC%9A%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E4%BC%98%E9%85%B7%E4%BF%9D%E9%99%A9.md?c0w=xvq
+
+开源一键搭建私有 AI 聊天集群脚本登上榜单
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E9%87%8D%E7%A3%85%E7%A7%91%E6%99%AE_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E3%80%8A%E7%94%9F%E6%B4%BB_%E6%96%87%E5%8C%96%E3%80%8B.md?vtl=7e6
+
+开源分布式训练仪表盘，观测多机训练运行状态
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E9%87%8D%E7%A3%85%E7%A7%91%E6%99%AE_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E3%80%8A%E7%94%9F%E6%B4%BB_%E6%96%87%E5%8C%96%E3%80%8B.md?noe=cdq
+
+开源 AI 绘画生成仓库，本地运行图像生成模型
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E6%99%AE%E5%8F%8A_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E8%B5%B7%E7%82%B9%E5%B0%8F%E7%A8%8B%E5%BA%8F.md?wl0=z39
+
+全球低收入国家粮食进口支出占外汇比重继续走高
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E6%99%AE%E5%8F%8A_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E8%B5%B7%E7%82%B9%E5%B0%8F%E7%A8%8B%E5%BA%8F.md?ouv=ir1
+
+人社部门发布新业态劳动者工伤案例，普及职业伤害保障相关知识
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%86%85%E6%A0%B8%E7%94%84%E6%96%AD_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E7%AE%80%E4%B9%A6%E5%81%A5%E5%BA%B7.md?glq=aq5
+
+印度尿素供给收缩，南亚农户购肥成本出现明显上涨
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%86%85%E6%A0%B8%E7%94%84%E6%96%AD_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E7%AE%80%E4%B9%A6%E5%81%A5%E5%BA%B7.md?mxw=r2c
+
+城市排水泵站汛期开启 24 小时值守全力排涝防范城市内涝
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%A0%B8%E5%BF%83%E4%B8%93%E5%88%8A_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%99%BE%E5%BA%A6%E5%8E%86%E5%8F%B2.md?zy8=qxl
+
+跨省市农产品冷链专线稳定运行
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%A0%B8%E5%BF%83%E4%B8%93%E5%88%8A_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%99%BE%E5%BA%A6%E5%8E%86%E5%8F%B2.md?rt4=179
+
+跨江大桥节假日车流实时监测系统上线疏导拥堵车流
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%AC%AC%E4%B8%80%E5%8D%8F%E8%B0%83_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85B%E7%AB%99%E6%94%80%E5%B2%A9.md?2gt=19l
+
+智慧工地监管系统投入运行 强化施工现场安全管控
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%AC%AC%E4%B8%80%E5%8D%8F%E8%B0%83_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85B%E7%AB%99%E6%94%80%E5%B2%A9.md?mal=8gm
+
+全球贸易数字化平台出海，为海外企业提供贸易数字化服务
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E6%96%B0%E8%AF%AD_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E8%B1%86%E7%93%A3%E5%85%BB%E7%94%9F.md?qkj=luc
+
+比特币短线跌破 77000 美元，风险资产遭遇集体回调
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E6%96%B0%E8%AF%AD_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E8%B1%86%E7%93%A3%E5%85%BB%E7%94%9F.md?54p=ucb
+
+国产自研高端芯片成功量产下线 供应链自主可控提速
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E6%A0%8F%E7%9B%AE_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E5%B0%8F%E7%B1%B3%E6%B8%B8%E6%88%8F.md?y3k=96o
+
+开源维护者互助社区板块上线，交流仓库运营难题
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E6%A0%8F%E7%9B%AE_%E5%A4%A9%E7%BE%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E5%B0%8F%E7%B1%B3%E6%B8%B8%E6%88%8F.md?a9o=a8m
+
+美股全球农业自动化服务商，工控设备出口实现稳步增长
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%88%86%E7%82%B9%E5%8D%9A%E8%A7%88_%E5%A4%A9%E7%BE%8E%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E7%88%B1%E5%A5%87%E8%89%BA%E5%BF%83%E7%90%86.md?oow=273
+
+欧元区货币供应量收缩，银行信贷投放增速明显放缓
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%88%86%E7%82%B9%E5%8D%9A%E8%A7%88_%E5%A4%A9%E7%BE%8E%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E7%88%B1%E5%A5%87%E8%89%BA%E5%BF%83%E7%90%86.md?p3u=1nh
+
+全球锌铅加工品出口跟随下游，基建地产周期主导需求变化
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%BD%A9%E6%B0%91%E7%BB%86%E8%AF%B4_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E7%BE%8E3%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E7%9F%A5%E4%B9%8E%E6%94%B6%E8%97%8F.md?744=xtw
+
+多地开展秋季动物防疫工作，筑牢畜禽重大疫病防控防火墙
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%BD%A9%E6%B0%91%E7%BB%86%E8%AF%B4_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E7%BE%8E3%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E7%9F%A5%E4%B9%8E%E6%94%B6%E8%97%8F.md?fgc=upa
+
+开源视频剪辑脚本仓库，代码自动裁剪拼接影片素材
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E8%A7%82%E5%AF%9F_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E8%B5%B7%E7%82%B9%E9%A3%8E%E7%94%B5.md?l5b=9in
+
+肯尼亚茶叶采收遇旱，全球红茶出口价格小幅抬升
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E8%A7%82%E5%AF%9F_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E8%B5%B7%E7%82%B9%E9%A3%8E%E7%94%B5.md?ghi=dxs
+
+哈萨克斯坦棉花库存累积，中亚棉花出口竞争加剧
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%83%AD%E7%82%B9%E9%A6%96%E6%8F%AD%EF%BC%9A%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E5%B0%8F%E7%BA%A2%E4%B9%A6%E7%95%99%E5%AD%A6.md?eh3=st2
+
+美股煤炭化肥成本服务商，煤炭回落改善部分化肥厂成本
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%83%AD%E7%82%B9%E9%A6%96%E6%8F%AD%EF%BC%9A%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E5%B0%8F%E7%BA%A2%E4%B9%A6%E7%95%99%E5%AD%A6.md?0ar=itg
+
+健康科普巡回宣讲走进基层 居民健康素养稳步提升
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%8F%B2%E6%96%99%E8%80%83%E5%BD%95_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E8%85%BE%E8%AE%AF%E7%A4%BE%E4%BC%9A.md?klc=usa
+
+美国开心果丰收上市，出口商积极开拓中东消费市场
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%8F%B2%E6%96%99%E8%80%83%E5%BD%95_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E8%85%BE%E8%AE%AF%E7%A4%BE%E4%BC%9A.md?lkn=mhd
+
+城市智慧公交站牌上新实时显示车辆到站信息
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E8%AF%A6%E8%AF%B4%20_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E4%BA%AC%E4%B8%9C%E8%88%AA%E6%A8%A1.md?3d9=hg7
+
+商圈夜间延时经营带动晚间客流
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E8%AF%A6%E8%AF%B4%20_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E4%BA%AC%E4%B8%9C%E8%88%AA%E6%A8%A1.md?wih=3px
+
+氢能公交车示范线路正式载客运行
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E6%99%BA%E8%AE%AF_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E5%87%A4%E5%87%B0%E7%BA%AA%E5%BD%95%E7%89%87.md?wsw=lk6
+
+布基纳法索芝麻库存充足，非洲油料出口货源供给宽松
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E6%99%BA%E8%AE%AF_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E5%87%A4%E5%87%B0%E7%BA%AA%E5%BD%95%E7%89%87.md?co6=77b
+
+澳大利亚出口受益大宗商品，贸易顺差维持较好水平
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%88%90%E9%95%BF%E6%94%BB%E7%95%A5_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E7%BE%8E3%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21360%E5%AE%A0%E7%89%A9.md?8el=que
+
+应急避难场所标识更新 提升应急引导能力
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%88%90%E9%95%BF%E6%94%BB%E7%95%A5_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E7%BE%8E3%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21360%E5%AE%A0%E7%89%A9.md?h4b=2jc
+
+开源视频剪辑脚本仓库，代码自动裁剪拼接影片素材
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E6%A0%B7%E6%9D%BF_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E9%A3%9E%E4%B9%A6%E5%88%B6%E9%80%A0.md?nwn=7qe
+
+全球多地发布冰川旅游安全警示，冰川消融增加冰崩雪崩各类安全风险
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E6%A0%B7%E6%9D%BF_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E9%A3%9E%E4%B9%A6%E5%88%B6%E9%80%A0.md?yyb=sgh
+
+非遗传承人进校园开设兴趣课程 传统手艺代代相传
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E5%AE%98%E6%96%B9%E5%8E%8B%E7%BC%A9_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E5%87%A4%E5%87%B0%E7%99%BE%E7%A7%91.md?koe=ya6
+
+城市积水点排水改造三期工程开工补齐剩余排水短板
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E5%AE%98%E6%96%B9%E5%8E%8B%E7%BC%A9_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E5%87%A4%E5%87%B0%E7%99%BE%E7%A7%91.md?jmb=c7s
+
+全球农业对外投资波动，地缘风险抑制跨国农业投资
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E6%B2%99%E9%BE%99_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E8%85%BE%E8%AE%AF%E5%A4%96%E8%AF%AD.md?702=l81
+
+开源缓存性能优化工具箱，提升缓存访问响应速度
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E6%B2%99%E9%BE%99_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E8%85%BE%E8%AE%AF%E5%A4%96%E8%AF%AD.md?8s9=yay
+
+城市滨水步道全线开放供市民游玩
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%9F%A5%E8%AF%86%E7%9B%B4%E6%92%AD%EF%BC%9A%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E7%BE%8E%E5%9B%A2%E6%82%AC%E7%96%91.md?qwd=0hx
+
+开源本地音乐 AI 曲风转换网页端登上趋势榜单
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%9F%A5%E8%AF%86%E7%9B%B4%E6%92%AD%EF%BC%9A%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E7%BE%8E%E5%9B%A2%E6%82%AC%E7%96%91.md?4nb=24w
+
+加拿大亚麻籽库存下降，特种油料国际报价小幅抬升
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%BF%9B%E9%98%B6%E8%AF%BE%E5%A0%82_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E7%BE%8E3%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E7%99%BE%E5%BA%A6%E5%AE%A0%E7%89%A9.md?32z=8m9
+
+美国冬小麦产区旱情延续，新季播种前景存在较大不确定性
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%BF%9B%E9%98%B6%E8%AF%BE%E5%A0%82_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E7%BE%8E3%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E7%99%BE%E5%BA%A6%E5%AE%A0%E7%89%A9.md?j4w=5t9
+
+AI 会议纪要生成仓库走红，音频快速提炼核心要点
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%9E%E6%97%B6%E5%AF%B9%E8%AF%9D%EF%BC%9A%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E5%BF%AB%E6%89%8B%E9%A9%AC%E6%9C%AF.md?uzf=b8m
+
+跨区域文旅合作联盟成立联合打造精品旅游线路
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%9E%E6%97%B6%E5%AF%B9%E8%AF%9D%EF%BC%9A%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E5%BF%AB%E6%89%8B%E9%A9%AC%E6%9C%AF.md?kh2=xtd
+
+大学生创业项目路演大赛开赛青年创业者展示自身创业项目
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E5%9C%B0%E5%9B%BE_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%AE%80%E4%B9%A6%E4%BA%91%E8%AE%A1%E7%AE%97.md?2im=t16
+
+乡村文明家庭评选揭晓一批文明家庭获表彰
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E5%9C%B0%E5%9B%BE_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%AE%80%E4%B9%A6%E4%BA%91%E8%AE%A1%E7%AE%97.md?8h9=vuu
+
+越南咖啡遭受干旱，咖啡树挂果数量出现明显下降
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%96%B0%E5%90%AF%E7%A8%8B_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%A4%A9%E7%BE%8E3%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E4%BC%98%E9%85%B7%E7%A4%BE%E8%AF%84.md?iv9=pph
+
+科普乡村行体验活动开展村民动手体验趣味科学实验项目
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%96%B0%E5%90%AF%E7%A8%8B_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E5%A4%A9%E7%BE%8E3%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E4%BC%98%E9%85%B7%E7%A4%BE%E8%AF%84.md?cuv=4jn
+
+开源本地大模型推理多实例动态扩缩容脚本更新
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%B2%BE%E8%A6%81%E8%AE%B2%E8%A7%A3_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21B%E7%AB%99%E4%B9%90%E5%99%A8.md?8y3=oc6
+
+国内科研团队开发新型 AI 诊断工具，辅助基层医生筛查疾病
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%B2%BE%E8%A6%81%E8%AE%B2%E8%A7%A3_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21B%E7%AB%99%E4%B9%90%E5%99%A8.md?t50=l40
+
+开源异地备份监控看板，查看灾备任务执行状态
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E6%96%B0%E6%8A%A5_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E7%88%B1%E5%A5%87%E8%89%BA%E8%B0%83%E6%9F%A5.md?3dz=gcc
+
+全球橡胶震荡运行，产胶国天气与下游需求互相博弈
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E6%96%B0%E6%8A%A5_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E7%88%B1%E5%A5%87%E8%89%BA%E8%B0%83%E6%9F%A5.md?jwn=1xf
+
+社区老年智能手机课堂开课教老人使用智能设备
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E6%96%B0%E7%9F%A5_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E4%BC%98%E9%85%B7%E4%B9%A6%E6%B3%95.md?efj=ath
+
+开源端侧 AI 目标检测模型部署套件发布
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E6%96%B0%E7%9F%A5_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E4%BC%98%E9%85%B7%E4%B9%A6%E6%B3%95.md?kl3=m5e
+
+全球跨境教育服务贸易回暖，留学生规模持续恢复上行
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E5%B7%85%E5%B3%B0_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E3%80%8CQQ%E9%82%AE%E7%AE%B1%E3%80%8D.md?pda=fln
+
+美股自动驾驶开支收缩服务商，部分企业缩减自动驾驶开支
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%98%E6%96%B9%E5%B7%85%E5%B3%B0_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E3%80%8CQQ%E9%82%AE%E7%AE%B1%E3%80%8D.md?v1h=05z
+
+国际跨境动物疫病防控会议召开，协同防范跨境动物疫病传播扩散
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%9C%9F%E7%9B%B8%E5%A4%A7%E7%99%BD%EF%BC%9A%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E7%99%BE%E5%BA%A6%E7%83%AD%E7%82%B9.md?0gc=exd
+
+秋作物病虫害监测预警系统发出预警提示
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%9C%9F%E7%9B%B8%E5%A4%A7%E7%99%BD%EF%BC%9A%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E7%99%BE%E5%BA%A6%E7%83%AD%E7%82%B9.md?0au=jym
+
+全球饲料原料贸易活跃，谷物油籽副产品跨境流通增加
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%89%8D%E6%B2%BF%E7%AE%80%E6%8A%A5_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%AE%80%E4%B9%A6%E4%BF%9D%E9%99%A9.md?kw4=avs
+
+氢能汽车示范线路开通运行测试氢能车辆性能
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%89%8D%E6%B2%BF%E7%AE%80%E6%8A%A5_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%AE%80%E4%B9%A6%E4%BF%9D%E9%99%A9.md?wvz=2r0
+
+开源高性能消息队列 AI 死信消息智能重放调度方案
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E6%B7%B1%E7%9F%A5%E8%AF%86_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E3%80%8Cflomo%20%E6%B5%AE%E5%A2%A8%E7%AC%94%E8%AE%B0%E3%80%8D.md?93p=3x7
+
+开源物联网设备管理平台更新固件模块
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E6%B7%B1%E7%9F%A5%E8%AF%86_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E3%80%8Cflomo%20%E6%B5%AE%E5%A2%A8%E7%AC%94%E8%AE%B0%E3%80%8D.md?oe5=vxi
+
+乡村书屋开展丰收主题读书活动
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%9E%E6%88%98%E8%B7%AF%E5%BE%84_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E7%9F%A5%E4%B9%8E%E6%BA%AF%E6%BA%AA.md?or4=lxd
+
+数据要素产业园开园培育数字新业态
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%AE%9E%E6%88%98%E8%B7%AF%E5%BE%84_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E7%9F%A5%E4%B9%8E%E6%BA%AF%E6%BA%AA.md?b7i=ldf
+
+开源线下技术展区预约开启，参观前沿开源成果
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E4%BA%8B%E5%AE%9E%E8%A1%8D%E5%8F%99_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E6%96%B0%E6%B5%AA%E6%A3%8B%E7%B1%BB.md?gji=ji7
+
+国际数字贸易安全论坛举办，探讨数字贸易网络安全风险防范举措
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E4%BA%8B%E5%AE%9E%E8%A1%8D%E5%8F%99_%E5%A4%A9%E7%BE%8E3%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E6%96%B0%E6%B5%AA%E6%A3%8B%E7%B1%BB.md?v3k=vi5
+
+森林防火智能视频监控上线 实时观测火情安全隐患
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E4%BA%8B%E6%80%81%E5%8E%98%E8%BE%A8_%E5%A4%A9%E7%BE%8E3%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21B%E7%AB%99%E6%88%B7%E5%A4%96.md?km3=joo
+
+开源 Python 高性能 AI 超参搜索分布式调优库迎来迭代
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E4%BA%8B%E6%80%81%E5%8E%98%E8%BE%A8_%E5%A4%A9%E7%BE%8E3%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21B%E7%AB%99%E6%88%B7%E5%A4%96.md?pw2=mqh
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%BB%86%E8%8A%82%E7%9C%81%E5%AF%9F_%E5%A4%A9%E7%BE%8E3app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E7%BE%8E3%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E7%BD%91%E6%98%93%E5%85%BD%E5%8C%BB.md?dlj=3dv
+
+跨区域旅游资源推介周圆满落幕吸引大批外地游客到访游玩观光
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%BB%86%E8%8A%82%E7%9C%81%E5%AF%9F_%E5%A4%A9%E7%BE%8E3app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E5%A4%A9%E7%BE%8E3%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E7%BD%91%E6%98%93%E5%85%BD%E5%8C%BB.md?2yz=43x
+
+开源电子书籍章节生成仓库，产出完整图书正文
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E6%8C%87%E5%8D%97%20_%E5%A4%A9%E7%BE%8E3app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E7%99%BE%E5%BA%A6%E4%B9%A6%E6%B3%95.md?f1d=vn7
+
+城市轨道交通延长线开工建设
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E6%8C%87%E5%8D%97%20_%E5%A4%A9%E7%BE%8E3app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E7%99%BE%E5%BA%A6%E4%B9%A6%E6%B3%95.md?81b=4j9
+
+开源 Wiki 知识库 AI 助手，生成完整项目技术文档
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%96%87%E5%BF%83%E5%8A%A9%E6%89%8B_%E5%A4%A9%E7%BE%8E3%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%99%BE%E5%BA%A6%E6%97%A0%E4%BA%BA%E6%9C%BA.md?egq=6qv
+
+美国国会两党博弈财政预算，债务上限风险再度浮现
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E6%96%87%E5%BF%83%E5%8A%A9%E6%89%8B_%E5%A4%A9%E7%BE%8E3%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E7%99%BE%E5%BA%A6%E6%97%A0%E4%BA%BA%E6%9C%BA.md?xwb=1gb
+
+应急物资智能调度系统上线 快速调配各类救灾物资
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%8E%B0%E7%8A%B6%E8%A7%A3%E6%9E%90_%E5%A4%A9%E7%BE%8E3%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%A4%A9%E7%BE%8E3%E5%9C%B0%E5%9D%80%2C%E5%A4%A9%E7%BE%8E3%E7%BD%91%E5%9D%80%2C%E5%A4%A9%E7%BE%8E3app%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E9%92%89%E9%92%89%E7%A7%91%E6%8A%80.md?oq9=baz
+
+外贸企业出口退税办理时限再提速资金更快回流至企业账户当中
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%8E%B0%E7%8A%B6%E8%A7%A3%E6%9E%90_%E5%A4%A9%E7%BE%8E3%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E5%A4%A9%E7%BE%8E3%E5%9C%B0%E5%9D%80%2C%E5%A4%A9%E7%BE%8E3%E7%BD%91%E5%9D%80%2C%E5%A4%A9%E7%BE%8E3app%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E9%92%89%E9%92%89%E7%A7%91%E6%8A%80.md?upd=byq
+
+美股农产品多重认证咨询服务商，跨境认证抬升出口成本
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%83%AD%E7%82%B9%E8%A7%A3%E8%AF%BB_%E5%A4%A9%E7%BE%8E3%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E7%BE%8E3%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E8%8A%92%E6%9E%9C%E4%B9%A6%E6%B3%95.md?njc=dtg
+
+工厂数字监控系统升级完工实时监测车间生产安全
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%83%AD%E7%82%B9%E8%A7%A3%E8%AF%BB_%E5%A4%A9%E7%BE%8E3%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%A4%A9%E7%BE%8E3%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E8%8A%92%E6%9E%9C%E4%B9%A6%E6%B3%95.md?ece=c3i
+
+地方文旅消费季启动推出系列优惠惠民活动
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%83%AD%E9%97%A8%E8%A7%82%E5%AF%9F_%E5%A4%A9%E7%BE%8E3%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E7%AE%80%E4%B9%A6%E9%83%BD%E5%B8%82.md?wf1=z62
+
+AI 交通信号灯智能优化路口通行效率
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%83%AD%E9%97%A8%E8%A7%82%E5%AF%9F_%E5%A4%A9%E7%BE%8E3%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E7%AE%80%E4%B9%A6%E9%83%BD%E5%B8%82.md?lnk=u9a
+
+河湖水质月度监测报告发布多条河段水质稳步提升
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%93%81%E8%B4%A8%E6%B8%85%E5%8D%95_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E7%88%B1%E5%A5%87%E8%89%BA%E6%8A%A4%E8%82%A4.md?3vu=0g1
+
+海上风电月度发电量再创新高
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E5%93%81%E8%B4%A8%E6%B8%85%E5%8D%95_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E7%88%B1%E5%A5%87%E8%89%BA%E6%8A%A4%E8%82%A4.md?a8z=x9w
+
+氢能产业链配套项目集中开工建设
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E5%85%A8%E8%A7%A3_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%BB%91%E6%9D%BF.md?fhr=rxu
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E5%85%A8%E8%A7%A3_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%BB%91%E6%9D%BF.md?2lo=bd5
+
+开源学生作业批改工具，AI 检查学生编码练习
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E9%A6%96%E5%B8%AD%E8%AE%BF%E8%B0%88%EF%BC%9A%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E5%BF%AB%E6%89%8B%E8%8D%89%E5%8E%9F.md?jzb=1x4
+
+外贸企业海外市场开拓补贴陆续发放助力企业出海参展拓展市场
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E9%A6%96%E5%B8%AD%E8%AE%BF%E8%B0%88%EF%BC%9A%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E5%BF%AB%E6%89%8B%E8%8D%89%E5%8E%9F.md?c6l=tbu
+
+开源跨平台 AI 图片生成批量任务队列管理桌面客户端
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E4%B8%96%E7%95%8C_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%85%BB%E7%94%9F.md?sk0=7pm
+
+国产柔性屏幕新品发布拓展应用场景
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E4%B8%96%E7%95%8C_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%85%BB%E7%94%9F.md?wky=fno
+
+泰国橡胶割胶工人短缺，劳动力不足制约橡胶产出规模
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%91%E6%99%AE%E5%8F%97%E4%BC%97_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E7%BE%8E3%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E4%BC%98%E9%85%B7%E7%9B%B4%E6%92%AD.md?gl6=hzz
+
+美股植物油各品种走势出现分化服务商，棕榈油豆油菜籽油走势出现分化
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%91%E6%99%AE%E5%8F%97%E4%BC%97_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E5%A4%A9%E7%BE%8E3%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E4%BC%98%E9%85%B7%E7%9B%B4%E6%92%AD.md?npv=iga
+
+美股农业服务跟踪服务商，服务业 PMI 维持整体扩张态势
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E6%B7%B1%E5%BA%A6%E8%A7%A3%E8%AF%BB_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21CSDN%E7%9B%B8%E6%9C%BA.md?wqf=u06
+
+全民健身成果展示活动举办展出群众运动健身风采
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%91%E6%99%AE%E6%B7%B1%E5%BA%A6%E8%A7%A3%E8%AF%BB_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21CSDN%E7%9B%B8%E6%9C%BA.md?c3b=aw6
+
+开源分布式缓存 AI 热点数据实时监控面板开源
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%B5%84%E6%96%99%E5%8E%98%E8%BE%A8_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21B%E7%AB%99%E6%B8%B8%E6%88%8F.md?8wg=coy
+
+美股农户储蓄行为调研服务商，高利率通胀带来双向影响
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%B5%84%E6%96%99%E5%8E%98%E8%BE%A8_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21B%E7%AB%99%E6%B8%B8%E6%88%8F.md?z2n=p00
+
+全球版权贸易规模扩张，流媒体带动版权跨境交易增长
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%92%E6%87%82%E9%87%8D%E7%82%B9_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E9%A3%9E%E4%B9%A6%E6%B5%B7%E5%B2%9B.md?pxd=pnj
+
+多地推进城市共享单车停放治理，规范共享单车停放维护市容秩序
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%A7%92%E6%87%82%E9%87%8D%E7%82%B9_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E9%A3%9E%E4%B9%A6%E6%B5%B7%E5%B2%9B.md?2i8=apq
+
+美股食糖现货紧俏服务商，贸易商争抢现货货源推升报价
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E6%96%87%E5%BA%93_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E6%96%B0%E6%B5%AA%E7%89%A9%E6%B5%81.md?hx0=7qq
+
+美股企业盈利分化服务商，能源农业企业盈利优于传统板块
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E6%96%87%E5%BA%93_%E5%A4%A9%E7%BE%8E3%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E6%96%B0%E6%B5%AA%E7%89%A9%E6%B5%81.md?7dq=w8e
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E5%89%8D%E9%94%8B_%E5%A4%A9%E7%BE%8E3%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%A4%A9%E7%BE%8E3QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%A4%A9%E7%BE%8E3%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E9%A3%9E%E4%B9%A6%E5%8C%BB%E7%BE%8E.md?772=cmf
+
+美股预制农产品出口服务商，预制食品受益冷链贸易扩张
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%AC%AC%E4%B8%80%E5%89%8D%E9%94%8B_%E5%A4%A9%E7%BE%8E3%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E5%A4%A9%E7%BE%8E3QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E5%A4%A9%E7%BE%8E3%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E9%A3%9E%E4%B9%A6%E5%8C%BB%E7%BE%8E.md?4vq=dfl
+
+灵活就业公积金缴存人数稳步上涨
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E5%9B%9E%E9%A1%BE_%E5%A4%A9%E7%BE%8E3%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E7%BE%8E3QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%A4%A9%E7%BE%8E3%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E4%BC%98%E9%85%B7%E9%9D%9E%E9%81%97.md?q1o=qks
+
+社区托育公益体验课面向家庭开放
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E7%A7%92%E6%87%82%E5%9B%9E%E9%A1%BE_%E5%A4%A9%E7%BE%8E3%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E7%BE%8E3QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E5%A4%A9%E7%BE%8E3%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E4%BC%98%E9%85%B7%E9%9D%9E%E9%81%97.md?ls6=ycr
+
+城市轨道交通新站点配套道路完工
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%AC%AC%E4%B8%80%E5%B1%82%E6%AC%A1_%E5%A4%A9%E7%BE%8E3%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E7%BE%8E3QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%A4%A9%E7%BE%8E3%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E6%8A%96%E9%9F%B3%E8%A7%82%E5%AF%9F.md?pv0=254
+
+互联网复诊开药配送上门服务范围扩大
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2027%E7%AC%AC%E4%B8%80%E5%B1%82%E6%AC%A1_%E5%A4%A9%E7%BE%8E3%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E5%A4%A9%E7%BE%8E3QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E5%A4%A9%E7%BE%8E3%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E6%8A%96%E9%9F%B3%E8%A7%82%E5%AF%9F.md?dds=fp9
+
+俄罗斯果蔬加工产品出口增长，罐头果酱远销海外
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%A7%82%E7%82%B9%E8%A7%A3%E8%AF%BB_%E5%A4%A9%E7%BE%8E3%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E7%BE%8E3%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E5%87%A4%E5%87%B0%E9%92%B1%E5%B8%81.md?x3i=2pa
+
+Qwen3.8‑Flash‑Next 开放源码，预览下一代大模型架构
+
+| 来源：https://github.com/thany99/tokuuoo9/blob/main/2026%E8%A7%82%E7%82%B9%E8%A7%A3%E8%AF%BB_%E5%A4%A9%E7%BE%8E3%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E5%A4%A9%E7%BE%8E3%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E5%87%A4%E5%87%B0%E9%92%B1%E5%B8%81.md?wkg=hou
